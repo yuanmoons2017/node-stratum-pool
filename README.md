@@ -1,4 +1,4 @@
-## This repo is looking for maintainers! Please reach out if interested.
+## This repo is looking for maintainers! Please reach out if interested.  GO'FOR'GOLD'GO'FOR'GO#
 
 --------
 
